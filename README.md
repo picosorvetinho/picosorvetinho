@@ -1,6 +1,6 @@
-❤️William James Moriarty 
-@picosorvetinho 💕🍦
-💟cochicomelhorquecococco
-🤠William James Moriarty  lindo
-🐤williamlindo
+❤️cachorros/gatos 
+@picosorvetinho
+arroz
+🤠gustavo lima
+🐤 passaro
 
